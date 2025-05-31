@@ -4,3 +4,5 @@ aloskdpowepriqower
 
 
 lz;xvcl;kja;sldkfj
+
+Дописал функцию тра ляля 
